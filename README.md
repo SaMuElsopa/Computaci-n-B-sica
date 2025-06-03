@@ -1,1 +1,0 @@
-# Computaci-n-B-sica
